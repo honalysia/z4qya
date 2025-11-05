@@ -13,7 +13,7 @@
 ╰┈➤ kiamei fan , minori yume , multishipper .ᐟ.ᐟ ![](https://64.media.tumblr.com/93cbd121ea4ea64e8a092e58399edfc3/c80e85c672fd2385-22/s75x75_c1/0b1ab8626ea2ce2effa791ff055033184a5eac20.gif)
 
 
-[atabook](https://z4qya.atabook.org) , [fav song](https://youtu.be/fS9tWVncfcg?si=zTfzWhlN-_i9jJ7u) , [strawpage](https://www.youtube.com/watch?v=IxX_QHay02M)
+[atabook](https://z4qya.atabook.org) , [fav song](https://youtu.be/oTOcAUtxIOY) , [strawpage](https://www.youtube.com/watch?v=IxX_QHay02M)
 
 
 ╭───────── · · ![](https://64.media.tumblr.com/5739e9e8be5fc36004c1138ddad33700/c80e85c672fd2385-0c/s75x75_c1/2f0fa24d1452777ec6b782080a1f3f6157826b6b.gifv) · · ─────────╮
@@ -26,22 +26,27 @@
 # ![](https://64.media.tumblr.com/58a86299007199c863a2a5b867991ebf/c80e85c672fd2385-18/s75x75_c1/043819ccb3de7148fd6bba714f4693a6e69de56d.gif) about me .ᐟ.ᐟ ![](https://64.media.tumblr.com/58a86299007199c863a2a5b867991ebf/c80e85c672fd2385-18/s75x75_c1/043819ccb3de7148fd6bba714f4693a6e69de56d.gif)
 
 
-𓂃 . 𐑞 c + h encouraged! 
+₁ 𓂃 . 𐑞 c + h encouraged! 
 
 
-𓂃 . 𐑞 sign my atabook please ( •̀ ω •́ )✧
+₂ 𓂃 . 𐑞 sign my atabook please ( •̀ ω •́ )✧
 
 
-𓂃 . 𐑞 friend reqs on pt ok!! 
+₃ 𓂃 . 𐑞 friend reqs on pt ok!! ask 4 dc
 
 
-𓂃 . 𐑞 fan of. . . love live, pmmm, umamusume, d4dj, prsk, bandori, hi3, wuwa, pt, rblx, mc, nikke .ᐟ
+₄ 𓂃 . 𐑞 fan of. . . lovelive, pmmm, umamusume, prsk, hi3 & more .ᐟ
 
 
-𓂃 . 𐑞 feel free to int ♪(^∇^*)
+₅ 𓂃 . 𐑞 feel free to int ♪(^∇^*)
 
 
-𓂃 . 𐑞 if i dont respond im afk/offtab
+₆ 𓂃 . 𐑞 if i dont respond im afk/offtab
 
 
 ![](https://64.media.tumblr.com/9deb96ba8cdb8b11dce362c3d4c4c450/766a602e10798ac5-fa/s1280x1920/d35555258889715961030ad9f66491d0f7392944.png)
+
+
+![](https://s3.ezgif.com/tmp/ezgif-30025b52096c8c.gif)
+
+end
