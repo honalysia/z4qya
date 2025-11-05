@@ -13,4 +13,11 @@
 [atabook](https://z4qya.atabook.org) , [fav song](https://youtu.be/fS9tWVncfcg?si=zTfzWhlN-_i9jJ7u) , [strawpage](https://www.youtube.com/watch?v=IxX_QHay02M)
 
 
+╭────── · · ![](https://64.media.tumblr.com/5739e9e8be5fc36004c1138ddad33700/c80e85c672fd2385-0c/s75x75_c1/2f0fa24d1452777ec6b782080a1f3f6157826b6b.gifv) · · ──────╮
+
+![](https://images-ext-1.discordapp.net/external/l7-umi2NhOzFEjdShQJgk9rq1yAWRxL7FeOBYV3jusM/https/s3.ezgif.com/tmp/ezgif-3ac69e2feca455.gif) ![](https://images-ext-1.discordapp.net/external/imdm1tZZyYKo8KwEmh-7b49EfLR0ywtYOwzsxm-XbnA/https/s3.ezgif.com/tmp/ezgif-3363518e245ebc.gif) ![](https://images-ext-1.discordapp.net/external/wSVjSfb2JjOV0cHrB-ChA4Z5r2LvkXCel1iEZNOvFsw/https/s3.ezgif.com/tmp/ezgif-348eb9f9de8e7d.gif)
+
+╰────── · · ![](https://64.media.tumblr.com/5739e9e8be5fc36004c1138ddad33700/c80e85c672fd2385-0c/s75x75_c1/2f0fa24d1452777ec6b782080a1f3f6157826b6b.gifv) · · ──────╯
+
+
 ![](https://64.media.tumblr.com/9deb96ba8cdb8b11dce362c3d4c4c450/766a602e10798ac5-fa/s1280x1920/d35555258889715961030ad9f66491d0f7392944.png)
