@@ -7,7 +7,10 @@
 # ![](https://64.media.tumblr.com/d6ef661aae18e38b58db6c6bb24f5a38/c80e85c672fd2385-a1/s75x75_c1/4ef7c5a47f34e761865f4c77f317c62569765bb6.gif) zaya ⁞ shihona ⁞ ichika ![](https://64.media.tumblr.com/d6ef661aae18e38b58db6c6bb24f5a38/c80e85c672fd2385-a1/s75x75_c1/4ef7c5a47f34e761865f4c77f317c62569765bb6.gif) 
 
 
-╰┈➤ ![](https://s6.ezgif.com/tmp/ezgif-64d13acec8cf83.png) kiamei fan , minori yume , multishipper .ᐟ.ᐟ
+╰┈➤ kiamei fan , minori yume , multishipper .ᐟ.ᐟ ![](https://64.media.tumblr.com/93cbd121ea4ea64e8a092e58399edfc3/c80e85c672fd2385-22/s75x75_c1/0b1ab8626ea2ce2effa791ff055033184a5eac20.gif)
+
+
+[atabook](https://z4qya.atabook.org) , [fav song](https://youtu.be/fS9tWVncfcg?si=zTfzWhlN-_i9jJ7u) , [strawpage](https://www.youtube.com/watch?v=IxX_QHay02M)
 
 
 ![](https://64.media.tumblr.com/9deb96ba8cdb8b11dce362c3d4c4c450/766a602e10798ac5-fa/s1280x1920/d35555258889715961030ad9f66491d0f7392944.png)
