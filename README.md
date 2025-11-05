@@ -26,4 +26,22 @@
 # ![](https://64.media.tumblr.com/58a86299007199c863a2a5b867991ebf/c80e85c672fd2385-18/s75x75_c1/043819ccb3de7148fd6bba714f4693a6e69de56d.gif) about me .ᐟ.ᐟ ![](https://64.media.tumblr.com/58a86299007199c863a2a5b867991ebf/c80e85c672fd2385-18/s75x75_c1/043819ccb3de7148fd6bba714f4693a6e69de56d.gif)
 
 
+𓂃 . 𐑞 c + h encouraged! sign my atabook please ( •̀ ω •́ )✧
+
+
+𓂃 . 𐑞 friend reqs on pt ok!! 
+
+
+𓂃 . 𐑞 feel free to int ♪(^∇^*)
+
+
+𓂃 . 𐑞 if i dont respond im afk/offtab
+
+
+𓂃 . 𐑞 watch: love live, pmmm, umamusume, d4dj, bang dream .ᐟ
+
+
+𓂃 . 𐑞 play: prsk, bandori, hi3, wuwa, pt, rblx, mc, nikke, d4dj .ᐟ
+
+
 ![](https://64.media.tumblr.com/9deb96ba8cdb8b11dce362c3d4c4c450/766a602e10798ac5-fa/s1280x1920/d35555258889715961030ad9f66491d0f7392944.png)
