@@ -23,4 +23,7 @@
 ╰───────── · · ![](https://64.media.tumblr.com/5739e9e8be5fc36004c1138ddad33700/c80e85c672fd2385-0c/s75x75_c1/2f0fa24d1452777ec6b782080a1f3f6157826b6b.gifv) · · ─────────╯
 
 
+# ![](https://64.media.tumblr.com/58a86299007199c863a2a5b867991ebf/c80e85c672fd2385-18/s75x75_c1/043819ccb3de7148fd6bba714f4693a6e69de56d.gif) about me .ᐟ.ᐟ ![](https://64.media.tumblr.com/58a86299007199c863a2a5b867991ebf/c80e85c672fd2385-18/s75x75_c1/043819ccb3de7148fd6bba714f4693a6e69de56d.gif)
+
+
 ![](https://64.media.tumblr.com/9deb96ba8cdb8b11dce362c3d4c4c450/766a602e10798ac5-fa/s1280x1920/d35555258889715961030ad9f66491d0f7392944.png)
