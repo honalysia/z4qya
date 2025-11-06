@@ -1,7 +1,7 @@
 <div align="center">
 
   
-![](https://s1.ezgif.com/tmp/ezgif-1e63fd58840c0d.gif)
+![](https://media.discordapp.net/attachments/1066529942193590395/1435948052937707621/kianagifgithub.gif?ex=690dd256&is=690c80d6&hm=46c12239da10c402642238b3ad1723443c1a15f7c3bcdca6a4b131fe287b6af6&=&width=1202&height=676)
 
   
 ![](https://64.media.tumblr.com/08283bdab6a8d9ec72248cd9d27e24af/766a602e10798ac5-49/s1280x1920/2221056c5f295ea800285526694c173d9a2b5d49.png)
@@ -47,6 +47,6 @@
 ![](https://64.media.tumblr.com/9deb96ba8cdb8b11dce362c3d4c4c450/766a602e10798ac5-fa/s1280x1920/d35555258889715961030ad9f66491d0f7392944.png)
 
 
-![](https://s5.ezgif.com/tmp/ezgif-5e01494f11bc87.gif)
+![](https://media.discordapp.net/attachments/1066529942193590395/1435947759130902578/meigiffithub.gif?ex=690dd210&is=690c8090&hm=ecebfdf864859973b4ca3a35d732e5d7e29cf6fac51ba40f22b649494a157ed3&=&width=1202&height=676)
 
 end
