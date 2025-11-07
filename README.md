@@ -13,7 +13,7 @@
 ╰┈➤ kiamei fan , minori yume , multishipper .ᐟ.ᐟ ![](https://64.media.tumblr.com/93cbd121ea4ea64e8a092e58399edfc3/c80e85c672fd2385-22/s75x75_c1/0b1ab8626ea2ce2effa791ff055033184a5eac20.gif)
 
 
-[atabook](https://z4qya.atabook.org) , [fav song](https://youtu.be/oTOcAUtxIOY) , [strawpage](https://www.youtube.com/watch?v=IxX_QHay02M)
+[atabook](https://z4qya.atabook.org) , [fav song](https://www.youtube.com/watch?v=B7BxrAAXl94) , [strawpage](https://www.youtube.com/watch?v=IxX_QHay02M)
 
 
 ╭───────── · · ![](https://64.media.tumblr.com/5739e9e8be5fc36004c1138ddad33700/c80e85c672fd2385-0c/s75x75_c1/2f0fa24d1452777ec6b782080a1f3f6157826b6b.gifv) · · ─────────╮
