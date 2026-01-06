@@ -44,9 +44,9 @@
 ₆ 𓂃 . 𐑞 if i dont respond im afk/offtab
 
 
-![](https://64.media.tumblr.com/9deb96ba8cdb8b11dce362c3d4c4c450/766a602e10798ac5-fa/s1280x1920/d35555258889715961030ad9f66491d0f7392944.png)
+![](https://64.media.tumblr.com/9a29b22f98979a2efe4a25bf0e389a0c/5f4104cb39c02c31-79/s2048x3072/bc4c12c3675b8726172147f0930452ee413c6221.png)
 
 
-![](https://media.discordapp.net/attachments/1066529942193590395/1435947759130902578/meigiffithub.gif?ex=690dd210&is=690c8090&hm=ecebfdf864859973b4ca3a35d732e5d7e29cf6fac51ba40f22b649494a157ed3&=&width=1202&height=676)
+![](https://64.media.tumblr.com/9f91ac97de7dd14a5bc200963425547e/5f4104cb39c02c31-34/s2048x3072/1a9bfd68d8d205e00c99838311719fd78ab68ca7.png)
 
 end
