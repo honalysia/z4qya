@@ -10,7 +10,7 @@
 # ![](https://64.media.tumblr.com/d33694e7fe8291ec0e1d6793bf595c50/d5ed8321db4bd7a6-98/s75x75_c1/0c67d705490e3fda5e907c9f8c17c95118589f78.gif) zaya ⁞ shihona ⁞ ichika ![](https://64.media.tumblr.com/58c5ff4e11c405b21913af273e327173/d5ed8321db4bd7a6-5b/s75x75_c1/b63a74c44ef3a950bdbe0dde22e56510381982cd.gif) 
 
 
-╰┈➤ k-on fan , minori & kanade yume , multishipper .ᐟ.ᐟ ![](https://64.media.tumblr.com/a397167b4783e0dfa1abed5d3e7280e6/d5ed8321db4bd7a6-72/s75x75_c1/13597f976b730f4539caf87a485dec82f6862482.gif)
+╰┈➤ k-on fan , minori & kanade yume , multishipper ![](https://64.media.tumblr.com/a397167b4783e0dfa1abed5d3e7280e6/d5ed8321db4bd7a6-72/s75x75_c1/13597f976b730f4539caf87a485dec82f6862482.gif)
 
 
 [atabook](https://z4qya.atabook.org) , [fav song](https://www.youtube.com/watch?v=B7BxrAAXl94) , [strawpage](https://www.youtube.com/watch?v=IxX_QHay02M)
@@ -44,9 +44,9 @@
 ₆ 𓂃 . 𐑞 if i dont respond im afk/offtab
 
 
+![](https://64.media.tumblr.com/83be4b3d8fe73c0cbeb81e221c185488/5f4104cb39c02c31-fa/s2048x3072/038fa1d4cf8363811d488093404b73f534abb5e7.png)
+
+
 ![](https://64.media.tumblr.com/9a29b22f98979a2efe4a25bf0e389a0c/5f4104cb39c02c31-79/s2048x3072/bc4c12c3675b8726172147f0930452ee413c6221.png)
-
-
-![](https://64.media.tumblr.com/9f91ac97de7dd14a5bc200963425547e/5f4104cb39c02c31-34/s2048x3072/1a9bfd68d8d205e00c99838311719fd78ab68ca7.png)
 
 end
