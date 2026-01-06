@@ -7,13 +7,13 @@
 ![](https://64.media.tumblr.com/83be4b3d8fe73c0cbeb81e221c185488/5f4104cb39c02c31-fa/s2048x3072/038fa1d4cf8363811d488093404b73f534abb5e7.png)
 
 
-# ![](https://64.media.tumblr.com/d33694e7fe8291ec0e1d6793bf595c50/d5ed8321db4bd7a6-98/s75x75_c1/0c67d705490e3fda5e907c9f8c17c95118589f78.gif) zaya ⁞ shihona ⁞ ichika ![](https://64.media.tumblr.com/58c5ff4e11c405b21913af273e327173/d5ed8321db4bd7a6-5b/s75x75_c1/b63a74c44ef3a950bdbe0dde22e56510381982cd.gif) 
+# ![](https://64.media.tumblr.com/d33694e7fe8291ec0e1d6793bf595c50/d5ed8321db4bd7a6-98/s75x75_c1/0c67d705490e3fda5e907c9f8c17c95118589f78.gif) honami ⁞ elysia ![](https://64.media.tumblr.com/58c5ff4e11c405b21913af273e327173/d5ed8321db4bd7a6-5b/s75x75_c1/b63a74c44ef3a950bdbe0dde22e56510381982cd.gif) 
 
 
 ╰┈➤ k-on fan , minori & kanade yume , multishipper ![](https://64.media.tumblr.com/a397167b4783e0dfa1abed5d3e7280e6/d5ed8321db4bd7a6-72/s75x75_c1/13597f976b730f4539caf87a485dec82f6862482.gif)
 
 
-[atabook](https://z4qya.atabook.org) , [fav song](https://www.youtube.com/watch?v=B7BxrAAXl94) , [strawpage](https://www.youtube.com/watch?v=IxX_QHay02M)
+[atabook](https://z4qya.atabook.org) , [random song](https://www.youtube.com/watch?v=B7BxrAAXl94) , [strawpage](https://www.youtube.com/watch?v=IxX_QHay02M)
 
 
 ╭───────── · · ![](https://64.media.tumblr.com/4c8c3b05c6d133e8ace28492895901ba/d5ed8321db4bd7a6-aa/s75x75_c1/6ffbe7f0f6271509f8c0aff15f5e49cb0aafa6d6.gif) · · ─────────╮
