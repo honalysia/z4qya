@@ -1,28 +1,29 @@
 <div align="center">
 
   
-![](https://64.media.tumblr.com/9f91ac97de7dd14a5bc200963425547e/5f4104cb39c02c31-34/s2048x3072/1a9bfd68d8d205e00c99838311719fd78ab68ca7.png)
+![](https://media.discordapp.net/attachments/1066529942193590395/1435948052937707621/kianagifgithub.gif?ex=690dd256&is=690c80d6&hm=46c12239da10c402642238b3ad1723443c1a15f7c3bcdca6a4b131fe287b6af6&=&width=1202&height=676)
+
   
-![](https://64.media.tumblr.com/08283bdab6a8d9ec72248cd9d27e24af/766a602e10798ac5-49/s1280x1920/2221056c5f295ea800285526694c173d9a2b5d49.png)
+![](https://64.media.tumblr.com/83be4b3d8fe73c0cbeb81e221c185488/5f4104cb39c02c31-fa/s2048x3072/038fa1d4cf8363811d488093404b73f534abb5e7.png)
 
 
-# ![](https://64.media.tumblr.com/d33694e7fe8291ec0e1d6793bf595c50/d5ed8321db4bd7a6-98/s75x75_c1/0c67d705490e3fda5e907c9f8c17c95118589f78.gif) honami ⁞ elysia ![](https://64.media.tumblr.com/58c5ff4e11c405b21913af273e327173/d5ed8321db4bd7a6-5b/s75x75_c1/b63a74c44ef3a950bdbe0dde22e56510381982cd.gif) 
+# ![](https://64.media.tumblr.com/d6ef661aae18e38b58db6c6bb24f5a38/c80e85c672fd2385-a1/s75x75_c1/4ef7c5a47f34e761865f4c77f317c62569765bb6.gif) zaya ⁞ shihona ⁞ ichika ![](https://64.media.tumblr.com/d6ef661aae18e38b58db6c6bb24f5a38/c80e85c672fd2385-a1/s75x75_c1/4ef7c5a47f34e761865f4c77f317c62569765bb6.gif) 
 
 
-╰┈➤ kiamei fan , minori yume , multishipper .ᐟ.ᐟ ![](https://64.media.tumblr.com/93cbd121ea4ea64e8a092e58399edfc3/c80e85c672fd2385-22/s75x75_c1/0b1ab8626ea2ce2effa791ff055033184a5eac20.gif)
+╰┈➤ k-on fan , minori & kanade yume , multishipper .ᐟ.ᐟ ![](https://64.media.tumblr.com/a397167b4783e0dfa1abed5d3e7280e6/d5ed8321db4bd7a6-72/s75x75_c1/13597f976b730f4539caf87a485dec82f6862482.gif)
 
 
 [atabook](https://z4qya.atabook.org) , [fav song](https://www.youtube.com/watch?v=B7BxrAAXl94) , [strawpage](https://www.youtube.com/watch?v=IxX_QHay02M)
 
 
-╭───────── · · ![](https://64.media.tumblr.com/5739e9e8be5fc36004c1138ddad33700/c80e85c672fd2385-0c/s75x75_c1/2f0fa24d1452777ec6b782080a1f3f6157826b6b.gifv) · · ─────────╮
+╭───────── · · ![](https://64.media.tumblr.com/4c8c3b05c6d133e8ace28492895901ba/d5ed8321db4bd7a6-aa/s75x75_c1/6ffbe7f0f6271509f8c0aff15f5e49cb0aafa6d6.gif) · · ─────────╮
 
 ![](https://images-ext-1.discordapp.net/external/l7-umi2NhOzFEjdShQJgk9rq1yAWRxL7FeOBYV3jusM/https/s3.ezgif.com/tmp/ezgif-3ac69e2feca455.gif) ![](https://images-ext-1.discordapp.net/external/imdm1tZZyYKo8KwEmh-7b49EfLR0ywtYOwzsxm-XbnA/https/s3.ezgif.com/tmp/ezgif-3363518e245ebc.gif) ![](https://images-ext-1.discordapp.net/external/wSVjSfb2JjOV0cHrB-ChA4Z5r2LvkXCel1iEZNOvFsw/https/s3.ezgif.com/tmp/ezgif-348eb9f9de8e7d.gif)
 
-╰───────── · · ![](https://64.media.tumblr.com/5739e9e8be5fc36004c1138ddad33700/c80e85c672fd2385-0c/s75x75_c1/2f0fa24d1452777ec6b782080a1f3f6157826b6b.gifv) · · ─────────╯
+╰───────── · · ![](https://64.media.tumblr.com/4c8c3b05c6d133e8ace28492895901ba/d5ed8321db4bd7a6-aa/s75x75_c1/6ffbe7f0f6271509f8c0aff15f5e49cb0aafa6d6.gif) · · ─────────╯
 
 
-# ![](https://64.media.tumblr.com/58a86299007199c863a2a5b867991ebf/c80e85c672fd2385-18/s75x75_c1/043819ccb3de7148fd6bba714f4693a6e69de56d.gif) about me .ᐟ.ᐟ ![](https://64.media.tumblr.com/58a86299007199c863a2a5b867991ebf/c80e85c672fd2385-18/s75x75_c1/043819ccb3de7148fd6bba714f4693a6e69de56d.gif)
+# ![](https://64.media.tumblr.com/5ff34cd36b2b2360a8c5bbad506bba70/d5ed8321db4bd7a6-94/s75x75_c1/f843a3d46e78175008dbff5f3dd620eafca32c35.gif) about me .ᐟ.ᐟ ![](https://64.media.tumblr.com/be2519f543398326adf7b172011630e4/d5ed8321db4bd7a6-93/s75x75_c1/976e4c60c007e468ab67780a4fb3d23f6ea56bad.gif)
 
 
 ₁ 𓂃 . 𐑞 c + h encouraged! 
